@@ -1,0 +1,1 @@
+# Politické strany
