@@ -14,3 +14,5 @@
     * Jaroslav Faltýnek, obviněn z domoci k dotačnímu podvodu v kauze Čapí hnízdo, stíhání později zrušeno
     * Klára Dostálová, podezření na podvod
     * Jaroslava Pokorná Jermanová, podezření na porušování povinností při správě cizího majetku, obviněni její blízcí spolupracovníci
+
+1. [Babišova firma napřed dostala obří pokutu. Teď však vyvázla zcela bez trestu ](https://www.seznamzpravy.cz/clanek/domaci-kauzy-babisova-firma-napred-dostala-obri-pokutu-ted-vsak-vyvazla-zcela-bez-trestu-259217)
