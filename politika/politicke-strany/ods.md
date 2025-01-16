@@ -7,3 +7,4 @@
 5. [Vaňkové jsem dal přes milion, řekl svědek v bytové kauze. Primátorka to popřela](https://www.idnes.cz/brno/zpravy/mestsky-soud-bytova-kauza-pridelovani-nebytovych-prostor-manipulace-hlinky-brno-stred.A241107_102204_brno-zpravy_azu)
 6. [Blažek s náměstkem spravovali firmy v dluzích. Majetek skončil u známých](https://www.seznamzpravy.cz/clanek/domaci-kauzy-blazek-s-namestkem-spravovali-firmy-v-dluzich-majetek-skoncil-u-znamych-261347)
 7. [Úředníkům platili luxusní dovolené, aby jim podle policie přiklepli zakázky](https://www.seznamzpravy.cz/clanek/domaci-kauzy-luxusni-zajezdy-a-milionove-zakazky-policie-popsala-novy-pripad-korupce-264401)
+8. [Vláda chystá kampaň za 34 milionů, zakázku dostala firma syna exposlance ODS](https://www.novinky.cz/clanek/domaci-vlada-chysta-kampan-za-34-milionu-zakazku-dostala-firma-syna-exposlance-ods-40504540)
