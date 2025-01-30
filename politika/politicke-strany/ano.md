@@ -17,3 +17,4 @@
 
 1. [Babišova firma napřed dostala obří pokutu. Teď však vyvázla zcela bez trestu ](https://www.seznamzpravy.cz/clanek/domaci-kauzy-babisova-firma-napred-dostala-obri-pokutu-ted-vsak-vyvazla-zcela-bez-trestu-259217)
 2. [Babišův Agrofert vrátil dotace určené malým zemědělcům](https://www.forum24.cz/babisuv-agrofert-vratil-dotace-urcene-malym-zemedelcum)
+3. [Vnitro pořídilo výstroj za miliardy, bundokošile bude vydávat ještě 50 let](https://www.novinky.cz/clanek/domaci-vnitro-poridilo-vystroj-za-miliardy-bundokosile-bude-vydavat-jeste-50-let-40505272)
