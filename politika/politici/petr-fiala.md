@@ -2,5 +2,6 @@
 
 1. [Premiér Fiala nepřiznal milionový podíl v záložně, za chybu se omluvil ](https://www.e15.cz/domaci/premier-fiala-nepriznal-milionovy-podil-v-zalozne-za-chybu-se-omluvil-1413075)
   * [Fialův institut má peníze od nadace, kterou financovala „jeho“ záložna](https://www.idnes.cz/zpravy/domaci/premier-fiala-podil-zalozna-investigace.A240206_110534_domaci_dyn)
+  * [Šéf kampeličky, kde měl Fiala zapomenutý milion, spáchal sebevraždu](https://www.novinky.cz/clanek/domaci-sef-kampelicky-kde-mel-fiala-zapomenuty-milion-spachal-sebevrazdu-40475445)
 
 2. [„To se nemělo stát. Ne teď.“ Odhalili jsme dotační království předsedy ODS Fialy. Desítky milionů tečou k panu profesorovi](https://www.parlamentnilisty.cz/arena/monitor/-To-se-nemelo-stat-Ne-ted-Odhalili-jsme-dotacni-kralovstvi-predsedy-ODS-Fialy-Desitky-milionu-tecou-k-panu-profesorovi-676397)
