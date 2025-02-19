@@ -1,5 +1,7 @@
 # Piráti (Pirátská strana)
 
+[Snad nebudu muset prodat ledvinu, reaguje senátorka na Pavlovo veto](https://www.idnes.cz/zpravy/domaci/senatorka-sipova-adela-ledvina-penize-mzda-prezident-veto.A250218_084730_domaci_ikro)
+
 [S muslimskou Evropou nemám problém, psal před lety Bartoš. Hlasoval proti vstupu do EU](https://cnn.iprima.cz/s-muslimskou-evropou-nemam-problem-psal-pred-lety-bartos-hlasoval-proti-vstupu-do-eu-25242)
 
 [Bartošův průšvih graduje. Stojí stavby školek i domků, v ohrožení jsou dotace](https://www.idnes.cz/zpravy/domaci/ivan-bartos-digitalizace-stavebni-rizeni-kolaudace.A240820_193746_domaci_vals?zdroj=sph_hp)
