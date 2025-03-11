@@ -21,6 +21,7 @@
 
 1. [Třicet let brutálně týrala syna, mrzačila ho až do zohavení. Dostala podmínku a ještě si stěžovala](https://www.novinky.cz/clanek/krimi-tricet-let-brutalne-tyrala-syna-mrzacila-ho-az-do-zohaveni-od-soudu-odesla-s-podminkou-40511580) - Podmínka za 30 let mučení syna
 1. [Opilý otec vezl své děti bez sedaček a při nehodě je zabil. Dostal sedm let](https://www.novinky.cz/clanek/krimi-opily-otec-vezl-sve-deti-bez-sedacek-a-pri-nehode-je-zabil-dostal-sedm-let-40495005)
+1. [Dělník, který dostal za pokus o vraždu tříměsíční dcerky 12 let vězení, byl osvobozen](https://www.novinky.cz/clanek/krimi-delnik-ktery-dostal-za-pokus-o-vrazdu-trimesicni-dcerky-12-let-vezeni-byl-osvobozen-40512508)
 
 ## Směšné tresty za znásilnění
 
