@@ -40,3 +40,4 @@
 1. [Jeden z největších distributorů dětské pornografie na světě. Pražská policie dopadla mezinárodně hledaného Čecha](https://www.novinky.cz/clanek/krimi-zadrzeli-cecha-hledaneho-kvuli-detske-homosexualni-pornografii-zajimala-se-o-nej-i-fbi-40492157) "Muži hrozí za zločin výroby a nakládání s dětskou pornografií a přečin zneužití dítěte k výrobě pornografie až osm let vězení."
 1. [Soused blokoval sanitku, seniorka později zemřela. Incident šetří i policie](https://www.idnes.cz/zlin/zpravy/sanitka-zablokovana-hvozdna-policie-setri-prestupek-pacientka-zemrela.A240830_112631_zlin-zpravy_jfuk)
 "Podle policie se mohl dopustit přestupku."
+1. [Spodní hranice pokusu o vraždu 10 let je horší trest, než co dostávají lidé za dokonané vraždy](https://x.com/Ministerstvocz/status/1900169386851250284)
