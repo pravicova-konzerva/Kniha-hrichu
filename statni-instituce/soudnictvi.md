@@ -1,12 +1,13 @@
 # Soudnictví
 
-## Zkorumpovaní státní zástupci
+## Zkorumpovaní státní zaměstnanci
 
 1. [Firma zapletená do korupce dala soudkyni statisíce na nové auto](https://www.seznamzpravy.cz/clanek/domaci-kauzy-firma-zapletena-do-korupce-dala-soudkyni-statisice-na-nove-auto-255936) - Uplácení soudců
 1. [Elitní pardubický advokát je souzen za zosnování vraždy. Tělo oběti se nenašlo](https://www.novinky.cz/clanek/krimi-elitni-pardubicky-advokat-je-souzen-za-zosnovani-vrazdy-telo-obeti-se-nenaslo-40499505)
 1. [V justici občas musíte dát úplatek, řekl u soudu advokát](https://www.seznamzpravy.cz/clanek/domaci-kauzy-v-justici-obcas-musite-dat-uplatek-rekl-u-soudu-advokat-263504)
 1. [Žalobci z Olomouce dostali od soudkyně drsný kartáč: Místo důkazů se ve spise řešily milenky](https://www.novinky.cz/clanek/krimi-zalobci-z-olomouce-dostali-od-soudkyne-drsny-kartac-misto-dukazu-se-ve-spise-resily-milenky-40491225) Spíš to vypadá na taktiku jak osvobodit obžalované. Stejnou použil Šaroch u Babiše.
 1. [Za úniky z policejních spisů odsoudili deset lidí. I vyšetřovatele NCOZ či celníka](https://www.idnes.cz/brno/zpravy/soud-brno-unik-z-policejnich-spisu-rozsudek.A241001_081646_brno-zpravy_mos1) Trestná činnost se vyplácí a řešení této činnosti se daňovým poplatníkům nevyplatí vůbec
+1. [Soudce Kafku zadrželi v zahraničí. Je podezřelý, že okradl o miliony desítky kolegů z branže](https://www.novinky.cz/clanek/krimi-soudce-kafku-zadrzeli-v-zahranici-je-podezrely-ze-okradl-o-miliony-desitky-kolegu-z-branze-40513064)
 
 ## Směšné tresty za vraždy
 
