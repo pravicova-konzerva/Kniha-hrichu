@@ -13,3 +13,5 @@
 11. [Auditoři cupovali záložně milionové zakázky s „nejasným smyslem“](https://www.seznamzpravy.cz/clanek/domaci-kauzy-velke-zakazky-s-nejasnym-smyslem-auditory-v-zalozne-zaujal-specialni-byznys-269849) - Jak už Seznam Zprávy loni popsaly, firma Somecs Institute byla také jednou z těch napojených na záložnu PDZ, ze kterých v minulých letech odtekly peníze do bruselského konzervativně orientovaného think tanku New Direction, přičemž poté zase zamířily do českého think tanku Pravý břeh spojeného s ODS a Petrem Fialou
 12. [Obří korupce u silničářů: První obviněný se přiznal a uzavřel dohodu](https://www.seznamzpravy.cz/clanek/domaci-kauzy-obri-korupce-u-silnicaru-prvni-obvineny-se-priznal-a-uzavrel-dohodu-269787)
   *  [První odsouzený v kauze olomouckých zakázek vyvázl s podmínkou, pokutou a zákazem činnosti](https://www.novinky.cz/clanek/krimi-prvni-odsouzeny-v-kauze-olomouckych-zakazek-vyvazl-s-podminkou-pokutou-a-zakazem-cinnosti-40508978)
+
+13. [Komisaře NCOZ obžalovali, že vynesl informace. A předal je synovi primátora](https://www.seznamzpravy.cz/clanek/domaci-kauzy-komisare-ncoz-obzalovali-ze-vynesl-informace-a-predal-je-synovi-primatora-272020)
