@@ -11,3 +11,5 @@
 1. [Nový zákon umožní financovat volební kampaně přes bílé koně třeba z Kypru](https://denik.to/novy-zakon-umozni-financovat-volebni-kampane-pres-bile-kone-treba-z-kypru/)
 
 1. [Stát chce vědět, které weby jste navštívili. ‚Snížíme tím zásah do soukromí,‘ tvrdí vnitro ](https://www.irozhlas.cz/zpravy-domov/provozni-a-lokalizacni-udaje-sledovani-data-retention-ip-adresa_2503130700_pik)
+
+1. [Poslanec za STAN hájil zvýšení poplatků pro ČT, sám od ní inkasoval statisíce](https://www.idnes.cz/zpravy/domaci/lacina-stan-koncesionarske-poplatky-snemovna-ceska-televize.A250314_190727_domaci_dyn)
