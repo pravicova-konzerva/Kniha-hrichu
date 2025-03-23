@@ -15,3 +15,5 @@
   *  [První odsouzený v kauze olomouckých zakázek vyvázl s podmínkou, pokutou a zákazem činnosti](https://www.novinky.cz/clanek/krimi-prvni-odsouzeny-v-kauze-olomouckych-zakazek-vyvazl-s-podminkou-pokutou-a-zakazem-cinnosti-40508978)
 
 13. [Komisaře NCOZ obžalovali, že vynesl informace. A předal je synovi primátora](https://www.seznamzpravy.cz/clanek/domaci-kauzy-komisare-ncoz-obzalovali-ze-vynesl-informace-a-predal-je-synovi-primatora-272020)
+14. [Znásilnění dětí je podle ODS zcela v pořádku](https://x.com/PrahaSpolu/status/1903813563199709493)
+    -  ![znasilneni-deti je v poradku podle ODS Decroix](https://github.com/user-attachments/assets/c98ca012-f450-42ca-859f-7d3bb06cf9a6)
