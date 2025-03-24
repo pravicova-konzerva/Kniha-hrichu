@@ -8,6 +8,7 @@
 1. [Žalobci z Olomouce dostali od soudkyně drsný kartáč: Místo důkazů se ve spise řešily milenky](https://www.novinky.cz/clanek/krimi-zalobci-z-olomouce-dostali-od-soudkyne-drsny-kartac-misto-dukazu-se-ve-spise-resily-milenky-40491225) Spíš to vypadá na taktiku jak osvobodit obžalované. Stejnou použil Šaroch u Babiše.
 1. [Za úniky z policejních spisů odsoudili deset lidí. I vyšetřovatele NCOZ či celníka](https://www.idnes.cz/brno/zpravy/soud-brno-unik-z-policejnich-spisu-rozsudek.A241001_081646_brno-zpravy_mos1) Trestná činnost se vyplácí a řešení této činnosti se daňovým poplatníkům nevyplatí vůbec
 1. [Soudce Kafku zadrželi v zahraničí. Je podezřelý, že okradl o miliony desítky kolegů z branže](https://www.novinky.cz/clanek/krimi-soudce-kafku-zadrzeli-v-zahranici-je-podezrely-ze-okradl-o-miliony-desitky-kolegu-z-branze-40513064)
+2. [Soudci se bojí soudit Dozimetr, myslí si Blažek. Kolem kauzy je 5 mrtvých, říká Michálek](https://www.echo24.cz/a/HdxFr/zpravy-domaci-soudci-se-mozna-boji-soudit-dozimetr-blazek-pet-mrtvych-dozimetr)
 
 ## Směšné tresty za vraždy
 
