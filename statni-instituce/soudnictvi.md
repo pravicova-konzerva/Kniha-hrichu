@@ -29,6 +29,7 @@
 ## Směšné tresty za znásilnění
 
 1. [Ženu omámil gelem na erekci a pak ji znásilnil. Vyrovnala se s tím, řekl soud a muži dal podmínku](https://www.novinky.cz/clanek/krimi-zenu-omamil-gelem-na-erekci-a-pak-ji-znasilnil-vyrovnala-se-s-tim-rekl-soud-a-muzi-dal-podminku-40512220)
+2. [Za znásilnění padají u soudů v polovině případů jen podmínky](https://www.novinky.cz/clanek/krimi-za-znasilneni-padaji-u-soudu-v-polovine-pripadu-jen-podminky-40514398)
 
 ## Směšné tresty za korupci
 
