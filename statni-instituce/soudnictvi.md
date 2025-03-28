@@ -46,3 +46,4 @@
 1. [Soused blokoval sanitku, seniorka později zemřela. Incident šetří i policie](https://www.idnes.cz/zlin/zpravy/sanitka-zablokovana-hvozdna-policie-setri-prestupek-pacientka-zemrela.A240830_112631_zlin-zpravy_jfuk)
 "Podle policie se mohl dopustit přestupku."
 1. [Spodní hranice pokusu o vraždu 10 let je horší trest, než co dostávají lidé za dokonané vraždy](https://x.com/Ministerstvocz/status/1900169386851250284)
+2. [Vinař z Lednice zmlátil exmanželku latí tak, až jí zlomil žebra. Nic vážného, nepáral se s tím soud](https://www.novinky.cz/clanek/krimi-vinar-z-lednice-zmlatil-exmanzelku-lati-tak-az-ji-zlomil-zebra-nic-vazneho-neparal-se-s-tim-soud-40515076)
