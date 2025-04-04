@@ -13,6 +13,7 @@
 ## Směšné tresty za vraždy
 
 1. [Z vraždy je opilství. Muž nebude souzen za ubodání partnerky v Jevíčku](https://www.novinky.cz/clanek/krimi-z-vrazdy-je-opilstvi-muz-nebude-souzen-za-ubodani-partnerky-v-jevicku-40511448) - Max. 10 let za vraždu, protože byl opilý.
+   -  [Ubodal družku. Do vězení nepůjde, drogy z něj udělaly nepříčetného](https://www.idnes.cz/pardubice/zpravy/vrazda-jevicko-soud-opilstvi-namesti-napadeni-bodani.A250404_085028_pardubice-zpravy_mvo)
 1. [Mladý Rus umlátil kladivem muže, který mu poskytl střechu nad hlavou. Vrchní soud mu zpřísnil trest na osm let](https://www.novinky.cz/clanek/krimi-mlady-rus-umlatil-kladivem-muze-ktery-mu-poskytl-strechu-nad-hlavou-vrchni-soud-mu-zprisnil-trest-na-osm-let-40508541) - 8 let za brutální vraždu
 1. [A teď ti začne vojna, pohrozila mu matka po pětce z matematiky. Zavraždil ji v masce kočky](https://www.novinky.cz/clanek/krimi-a-ted-ti-zacne-vojna-pohrozila-mu-matka-po-petce-z-matematiky-zavrazdil-ji-v-masce-kocky-40508570) - 12 let za brutální vraždu
 1. [Přítelkyni rozjezdil autem na poli u Prahy, dostal 15 let](https://www.novinky.cz/clanek/krimi-pritelkyni-rozjezdil-autem-na-poli-u-prahy-dostal-15-let-40499813)
