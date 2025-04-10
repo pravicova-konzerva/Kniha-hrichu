@@ -1,4 +1,4 @@
-# ANO
+![image](https://github.com/user-attachments/assets/fbc1a11f-f2a3-4456-b71e-e962c7320e18)# ANO
 
 1. [Zakázka za všechny peníze. Armáda koupila drony za 42 milionů, stojí přitom pár set tisíc](https://www.novinky.cz/clanek/domaci-zakazka-za-vsechny-penize-armada-koupila-drony-za-42-milionu-stoji-pritom-par-set-tisic-40478760)
 1. [Pardubická chobotnice](https://www.irozhlas.cz/zpravy-domov/kauza-ovlivnovani-zakazek-v-pardubicich-bobtna-kriminaliste-obvinili-dalsich_2407151637_vtk)
@@ -19,3 +19,4 @@
 2. [Babišův Agrofert vrátil dotace určené malým zemědělcům](https://www.forum24.cz/babisuv-agrofert-vratil-dotace-urcene-malym-zemedelcum)
 3. [Vnitro pořídilo výstroj za miliardy, bundokošile bude vydávat ještě 50 let](https://www.novinky.cz/clanek/domaci-vnitro-poridilo-vystroj-za-miliardy-bundokosile-bude-vydavat-jeste-50-let-40505272)
 4. [Z Babišovy chemičky znovu unikl jedovatý dráždivý plyn](https://www.seznamzpravy.cz/clanek/domaci-kauzy-z-babisovy-chemicky-znovu-unikl-jedovaty-drazdivy-plyn-268339)
+4. [Poslanci nenápadně chystají nový náhubkový zákon](https://www.novinky.cz/clanek/domaci-poslanci-nenapadne-chystaji-novy-nahubkovy-zakon-40516109)
