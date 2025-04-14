@@ -19,6 +19,7 @@
 1. [Přítelkyni rozjezdil autem na poli u Prahy, dostal 15 let](https://www.novinky.cz/clanek/krimi-pritelkyni-rozjezdil-autem-na-poli-u-prahy-dostal-15-let-40499813)
 1. [Sedmnáctiletý mladík na Vysočině umlátil bytného kladivem. Za brutální vraždu dostal sedm let](https://www.novinky.cz/clanek/krimi-sedmnactilety-mladik-na-vysocine-umlatil-bytneho-kladivem-za-brutalni-vrazdu-dostal-sedm-let-40498292)
 1. [V opilosti umlátil přítelkyni. Dostal devět let](https://www.novinky.cz/clanek/krimi-v-opilosti-umlatil-pritelkyni-dostal-devet-let-40493092)
+2. [Bili ho, řezali a natáčeli, jak umírá. Mladíci umučili třináctiletého kluka, pro zábavu](https://www.idnes.cz/zpravy/domaci/vrazda-deti-brutalita-nasili-trest-nuz.A250413_192446_domaci_stud) - 8,5 let za brutální vraždu
 
 ## Směšné tresty za brutální činy
 
