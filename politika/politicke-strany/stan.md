@@ -15,3 +15,5 @@
 1. [Poslanec za STAN hájil zvýšení poplatků pro ČT, sám od ní inkasoval statisíce](https://www.idnes.cz/zpravy/domaci/lacina-stan-koncesionarske-poplatky-snemovna-ceska-televize.A250314_190727_domaci_dyn)
 
 2. [Běžný, řekl Bek o bonusu pro rektorku. Sám dostal milionové bonusy i odchodné](https://www.idnes.cz/zpravy/domaci/mikulas-bek-odmeny-univerzita-karlova-masarykova-univerzita.A250319_185852_domaci_ceve?zdroj=otvirak)
+
+1. [Fiala si při svém premiérování vydělal na univerzitě milion. Není jasné, kdy to stíhal ](https://www.echo24.cz/a/HGvcQ/zpravy-domov-fiala-premier-univerzita-milion-neni-jasne-stihal)
