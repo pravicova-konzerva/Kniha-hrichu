@@ -20,3 +20,4 @@
 3. [Vnitro pořídilo výstroj za miliardy, bundokošile bude vydávat ještě 50 let](https://www.novinky.cz/clanek/domaci-vnitro-poridilo-vystroj-za-miliardy-bundokosile-bude-vydavat-jeste-50-let-40505272)
 4. [Z Babišovy chemičky znovu unikl jedovatý dráždivý plyn](https://www.seznamzpravy.cz/clanek/domaci-kauzy-z-babisovy-chemicky-znovu-unikl-jedovaty-drazdivy-plyn-268339)
 4. [Poslanci nenápadně chystají nový náhubkový zákon](https://www.novinky.cz/clanek/domaci-poslanci-nenapadne-chystaji-novy-nahubkovy-zakon-40516109)
+4. **Primátor za ANO nakoupil v Číně stroje na respirátory a obratem je prodal státu za téměř trojnásobek skrze svou měsíc starou firmou bez zaměstnanců**[Byznys ze státních dotací: Primátor z ANO nakoupil za 13 milionů, prodal za 38](https://www.seznamzpravy.cz/clanek/domaci-kauzy-byznys-ze-statnich-dotaci-primator-z-ano-nakoupil-za-13-milionu-prodal-za-38-277030)
