@@ -18,3 +18,4 @@
  * [Polní kuchyně za 66 milionů. Po dvou týdnech ministerstvo přiznalo, že ji nemá](https://www.seznamzpravy.cz/clanek/domaci-zivot-v-cesku-polni-kuchyne-za-66-milionu-po-dvou-tydnech-ministerstvo-priznalo-ze-ji-nema-277141)
 15. **Armádní web za 300 M Kč** [Armádnímu náboru se nedaří. Web virtuálních rekrutérů ale spolyká dalších 99 milionů korun](https://www.novinky.cz/clanek/domaci-armadnimu-naboru-se-nedari-web-virtualnich-rekruteru-ale-spolyka-dalsich-99-milionu-korun-40510365)
 16. [Fiala si při svém premiérování vydělal na univerzitě milion. Není jasné, kdy to stíhal ](https://www.echo24.cz/a/HGvcQ/zpravy-domov-fiala-premier-univerzita-milion-neni-jasne-stihal)
+17. **Ministr spravedlnosti Blažek končí za miliardový "dar" státu od drogového dealera** [Podivný obchod s dealerem drog a konec ministra. Kauza nekončí, jde o obří sumy](https://www.idnes.cz/zpravy/domaci/pavel-blazek-rezognoval-dar-bitcoin-dealer-drog.A250530_193209_domaci_misl)
