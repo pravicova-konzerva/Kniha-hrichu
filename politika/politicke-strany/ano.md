@@ -23,3 +23,5 @@
 4. **Primátor za ANO nakoupil v Číně stroje na respirátory a obratem je prodal státu za téměř trojnásobek skrze svou měsíc starou firmou bez zaměstnanců** [Byznys ze státních dotací: Primátor z ANO nakoupil za 13 milionů, prodal za 38](https://www.seznamzpravy.cz/clanek/domaci-kauzy-byznys-ze-statnich-dotaci-primator-z-ano-nakoupil-za-13-milionu-prodal-za-38-277030)
 
 4. [Nechal úmyslně zamořit lesy azbestem, píše policie o obvinění politika ANO](https://www.seznamzpravy.cz/clanek/domaci-kauzy-politik-ano-prihlizel-zamoreni-azbestem-pise-policie-skoda-je-22-miliardy-277316)
+
+5. [Armáda stahuje vesty za čtvrt miliardy v půlce životnosti. Jdou prostřelit](https://www.novinky.cz/clanek/domaci-armada-stahuje-vesty-za-ctvrt-miliardy-v-pulce-zivotnosti-jdou-prostrelit-40526421)
