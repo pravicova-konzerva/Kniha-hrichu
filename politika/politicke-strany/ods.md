@@ -21,3 +21,4 @@
 17. [Fiala si při svém premiérování vydělal na univerzitě milion. Není jasné, kdy to stíhal ](https://www.echo24.cz/a/HGvcQ/zpravy-domov-fiala-premier-univerzita-milion-neni-jasne-stihal)
 18. **Ministr spravedlnosti Blažek končí za miliardový "dar" státu od drogového dealera** [Podivný obchod s dealerem drog a konec ministra. Kauza nekončí, jde o obří sumy](https://www.idnes.cz/zpravy/domaci/pavel-blazek-rezognoval-dar-bitcoin-dealer-drog.A250530_193209_domaci_misl)
 19. [Bývalý hejtman a poslanec ODS byl odsouzen na čtyři roky do vězení](https://www.seznamzpravy.cz/clanek/domaci-kauzy-byvaly-hejtman-a-poslanec-ods-byl-odsouzen-na-ctyri-roky-do-vezeni-280787)
+20. [Válek létá na golf se šéfem IT firmy. Nevím, že má od nás zakázky, říká](https://www.seznamzpravy.cz/clanek/domaci-kauzy-valek-leta-na-golf-se-sefem-it-firmy-nevim-ze-ma-od-nas-zakazky-rika-281673)
