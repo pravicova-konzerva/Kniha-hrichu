@@ -35,6 +35,7 @@
 1. [Ženu omámil gelem na erekci a pak ji znásilnil. Vyrovnala se s tím, řekl soud a muži dal podmínku](https://www.novinky.cz/clanek/krimi-zenu-omamil-gelem-na-erekci-a-pak-ji-znasilnil-vyrovnala-se-s-tim-rekl-soud-a-muzi-dal-podminku-40512220)
 2. [Za znásilnění padají u soudů v polovině případů jen podmínky](https://www.novinky.cz/clanek/krimi-za-znasilneni-padaji-u-soudu-v-polovine-pripadu-jen-podminky-40514398)
 3. [Soud v případu dívky znásilňované otčímem selhal. Podmínku mu ale ÚS nezrušil](https://www.novinky.cz/clanek/krimi-soud-v-pripadu-divky-znasilnovane-otcimem-selhal-podminku-mu-ale-us-nezrusil-40514651)
+4. [Sexuálně se ukájel na nezletilé dceři. Stačí léčba, rozhodl soud a pedofilovi z Plzně dal podmínku](https://www.novinky.cz/clanek/krimi-sexualne-se-ukajel-na-nezletile-dceri-staci-lecba-rozhodl-soud-a-pedofilovi-z-plzne-dal-podminku-40530165)
 
 ## Směšné tresty za korupci
 
