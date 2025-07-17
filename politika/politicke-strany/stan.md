@@ -16,4 +16,6 @@
 
 2. [Běžný, řekl Bek o bonusu pro rektorku. Sám dostal milionové bonusy i odchodné](https://www.idnes.cz/zpravy/domaci/mikulas-bek-odmeny-univerzita-karlova-masarykova-univerzita.A250319_185852_domaci_ceve?zdroj=otvirak)
 
-1. [Praze hrozí další ztráta. Dopravní podnik dodnes nevyčíslil škodu v kauze Dozimetr](https://www.idnes.cz/zpravy/domaci/dopravni-podnik-praha-dozimetr-kauza-skoda.A250411_173421_domaci_stud?zdroj=otvirak)
+1. [Praze hrozí další ztráta. Dopravní podnik dodnes nevyčíslil škodu v kauze Dozimetr](https://www.idnes.cz/zpravy/domaci/dopravni-podnik-praha-dozimetr-kauza-skoda.A250411_173421_domaci_stud)
+
+2. **Předvolební tahák STAN: Asistovaná sebevražda pro děti od 14 let** [Předvolební "tahák" STAN: Do programu si dali povolení asistované sebevraždy ](https://zpravy.aktualne.cz/domaci/sebelova-o-svem-ockovani-deti-rozhoduji-od-14-let-stejne-by/r~55f3cd2e60ea11f0a1910cc47ab5f122/)
