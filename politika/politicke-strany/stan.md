@@ -19,3 +19,5 @@
 1. [Praze hrozí další ztráta. Dopravní podnik dodnes nevyčíslil škodu v kauze Dozimetr](https://www.idnes.cz/zpravy/domaci/dopravni-podnik-praha-dozimetr-kauza-skoda.A250411_173421_domaci_stud)
 
 2. **Předvolební tahák STAN: Asistovaná sebevražda pro děti od 14 let** [Předvolební "tahák" STAN: Do programu si dali povolení asistované sebevraždy ](https://zpravy.aktualne.cz/domaci/sebelova-o-svem-ockovani-deti-rozhoduji-od-14-let-stejne-by/r~55f3cd2e60ea11f0a1910cc47ab5f122/)
+
+3. [Když se na rodičovské vystřídá matka i otec, dostanou 50 tisíc, navrhuje STAN](https://www.novinky.cz/clanek/domaci-kdyz-se-rodicovske-vystrida-matka-i-otec-dostanou-50-tisic-navrhuje-stan-40533081)
