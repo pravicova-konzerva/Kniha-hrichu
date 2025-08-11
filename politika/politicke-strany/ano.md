@@ -25,3 +25,5 @@
 4. [Nechal úmyslně zamořit lesy azbestem, píše policie o obvinění politika ANO](https://www.seznamzpravy.cz/clanek/domaci-kauzy-politik-ano-prihlizel-zamoreni-azbestem-pise-policie-skoda-je-22-miliardy-277316)
 
 5. [Armáda stahuje vesty za čtvrt miliardy v půlce životnosti. Jdou prostřelit](https://www.novinky.cz/clanek/domaci-armada-stahuje-vesty-za-ctvrt-miliardy-v-pulce-zivotnosti-jdou-prostrelit-40526421)
+
+6. [Agrofert neměl čerpat ani národní dotace. Stamiliony stát zpět nechce](https://www.seznamzpravy.cz/clanek/domaci-kauzy-vymahat-narodni-dotace-po-firmach-babise-rozsudky-nam-nestaci-tvrdi-stat-283049)
