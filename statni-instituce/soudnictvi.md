@@ -29,6 +29,7 @@
 1. [Opilý otec vezl své děti bez sedaček a při nehodě je zabil. Dostal sedm let](https://www.novinky.cz/clanek/krimi-opily-otec-vezl-sve-deti-bez-sedacek-a-pri-nehode-je-zabil-dostal-sedm-let-40495005)
 1. [Dělník, který dostal za pokus o vraždu tříměsíční dcerky 12 let vězení, byl osvobozen](https://www.novinky.cz/clanek/krimi-delnik-ktery-dostal-za-pokus-o-vrazdu-trimesicni-dcerky-12-let-vezeni-byl-osvobozen-40512508)
 2. [Podmínku za brutální sexuální útok u Siřemi prozkoumá ministerstvo spravedlnosti](https://www.novinky.cz/clanek/krimi-podminku-za-brutalni-sexualni-utok-u-siremi-prozkouma-ministerstvo-spravedlnosti-40513614)
+3. [Matka týrala postiženou dceru, ta kvůli zanedbání péče zemřela. Ženě hrozí 12 let](https://www.novinky.cz/clanek/krimi-matka-tyrala-postizenou-dceru-ta-kvuli-zanedbani-pece-zemrela-zene-hrozi-12-let-40533890)
 
 ## Směšné tresty za znásilnění
 
