@@ -27,3 +27,5 @@
 5. [Armáda stahuje vesty za čtvrt miliardy v půlce životnosti. Jdou prostřelit](https://www.novinky.cz/clanek/domaci-armada-stahuje-vesty-za-ctvrt-miliardy-v-pulce-zivotnosti-jdou-prostrelit-40526421)
 
 6. [Agrofert neměl čerpat ani národní dotace. Stamiliony stát zpět nechce](https://www.seznamzpravy.cz/clanek/domaci-kauzy-vymahat-narodni-dotace-po-firmach-babise-rozsudky-nam-nestaci-tvrdi-stat-283049)
+
+7. [Poslankyně ANO chtěla „zakleknout“ firmu exmanžela. Ať to hned vysvětlí, říká Babiš](https://www.idnes.cz/zpravy/domaci/margita-balastikova-poslankyne-ano-zneuziti-funkce-nahravky-andrej-babis.A250812_095053_domaci_misl)
