@@ -23,3 +23,4 @@
 19. [Bývalý hejtman a poslanec ODS byl odsouzen na čtyři roky do vězení](https://www.seznamzpravy.cz/clanek/domaci-kauzy-byvaly-hejtman-a-poslanec-ods-byl-odsouzen-na-ctyri-roky-do-vezeni-280787)
 20. [Válek létá na golf se šéfem IT firmy. Nevím, že má od nás zakázky, říká](https://www.seznamzpravy.cz/clanek/domaci-kauzy-valek-leta-na-golf-se-sefem-it-firmy-nevim-ze-ma-od-nas-zakazky-rika-281673)
 21. [Agrofert neměl čerpat ani národní dotace. Stamiliony stát zpět nechce](https://www.seznamzpravy.cz/clanek/domaci-kauzy-vymahat-narodni-dotace-po-firmach-babise-rozsudky-nam-nestaci-tvrdi-stat-283049) Za vlády ODS se nevyžaduje od Agrofertu vrácení peněz z dotací, na které neměl nárok.
+22. [Z ubytovny nemocnice jsou byty za 150 milionů. Vydělala politička ODS](https://www.seznamzpravy.cz/clanek/domaci-kauzy-z-ubytovny-nemocnice-jsou-byty-za-150-milionu-vydelala-politicka-ods-283697)
