@@ -21,3 +21,5 @@
 2. **Předvolební tahák STAN: Asistovaná sebevražda pro děti od 14 let** [Předvolební "tahák" STAN: Do programu si dali povolení asistované sebevraždy ](https://zpravy.aktualne.cz/domaci/sebelova-o-svem-ockovani-deti-rozhoduji-od-14-let-stejne-by/r~55f3cd2e60ea11f0a1910cc47ab5f122/)
 
 3. [Když se na rodičovské vystřídá matka i otec, dostanou 50 tisíc, navrhuje STAN](https://www.novinky.cz/clanek/domaci-kdyz-se-rodicovske-vystrida-matka-i-otec-dostanou-50-tisic-navrhuje-stan-40533081)
+
+4. [Rakušan tvrdí, že odmítá plošné šmírování lidí. Za zavřenými dveřmi mluvil jinak, oponuje Profant](https://www.novinky.cz/clanek/internet-a-pc-rakusan-tvrdi-ze-odmita-plosne-smirovani-lidi-za-zavrenymi-dvermi-mluvil-jinak-oponuje-profant-40535996)
