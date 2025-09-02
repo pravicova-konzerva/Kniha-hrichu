@@ -22,6 +22,7 @@
 2. [Bili ho, řezali a natáčeli, jak umírá. Mladíci umučili třináctiletého kluka, pro zábavu](https://www.idnes.cz/zpravy/domaci/vrazda-deti-brutalita-nasili-trest-nuz.A250413_192446_domaci_stud) - 8,5 let za brutální vraždu
 3. [Za ubodání prodavaček hrozí šestnáctiletému mladíkovi 10 let vězení. Kriminalisté ho obvinili](https://cnn.iprima.cz/policie-zverejnila-dalsi-detaily-hruzi-v-hradci-kralove-zavrazdenym-zenam-bylo-19-a-38-let-466751) Maximálně 10 let za dvojnásobnou vraždu pro "nezletilého"
 4. [Rozzuřený důchodce na Tachovsku probodl vycházkovou holí srdce řidiči, který mu bránil v průjezdu](https://www.novinky.cz/clanek/krimi-rozzureny-duchodce-na-tachovsku-probodl-vychazkovou-holi-srdce-ridici-ktery-mu-branil-v-prujezdu-40522565) - Návrh 10 let vězení za chladnokrevnou vraždu
+5. [Za brutální ubití bezdomovce v Krnově dostal mladík 15 let vězení](https://www.novinky.cz/clanek/krimi-za-brutalni-ubiti-bezdomovce-v-krnove-dostal-mladik-15-let-vezeni-40536732)
 
 ## Směšné tresty za brutální činy
 
