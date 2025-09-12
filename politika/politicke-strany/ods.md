@@ -24,3 +24,4 @@
 20. [Válek létá na golf se šéfem IT firmy. Nevím, že má od nás zakázky, říká](https://www.seznamzpravy.cz/clanek/domaci-kauzy-valek-leta-na-golf-se-sefem-it-firmy-nevim-ze-ma-od-nas-zakazky-rika-281673)
 21. [Agrofert neměl čerpat ani národní dotace. Stamiliony stát zpět nechce](https://www.seznamzpravy.cz/clanek/domaci-kauzy-vymahat-narodni-dotace-po-firmach-babise-rozsudky-nam-nestaci-tvrdi-stat-283049) Za vlády ODS se nevyžaduje od Agrofertu vrácení peněz z dotací, na které neměl nárok.
 22. [Z ubytovny nemocnice jsou byty za 150 milionů. Vydělala politička ODS](https://www.seznamzpravy.cz/clanek/domaci-kauzy-z-ubytovny-nemocnice-jsou-byty-za-150-milionu-vydelala-politicka-ods-283697)
+23. [„ODS chce peníze ze špitálu - neofiko,“ zaznělo v odposleších v kauze IKEM](https://www.novinky.cz/clanek/domaci-ods-chce-penize-ze-spitalu-neofiko-zaznelo-v-odposlesich-v-kauze-ikem-40538559)
