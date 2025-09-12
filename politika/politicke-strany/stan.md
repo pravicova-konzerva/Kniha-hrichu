@@ -25,3 +25,5 @@
 4. [Rakušan tvrdí, že odmítá plošné šmírování lidí. Za zavřenými dveřmi mluvil jinak, oponuje Profant](https://www.novinky.cz/clanek/internet-a-pc-rakusan-tvrdi-ze-odmita-plosne-smirovani-lidi-za-zavrenymi-dvermi-mluvil-jinak-oponuje-profant-40535996)
 
 5. [„Dva a půl milionu, nádhera, ne?“ O čem si tajně povídali obžalovaní z Dozimetru](https://www.idnes.cz/zpravy/domaci/stan-dozimetr-zaloba-kauza-korupce-michal-redl-pavel-kos-matej-augustin-hlubucek.A250910_191751_domaci_varg)
+
+6. [Redl neoficiálně finančně podporoval Starosty, stojí v obžalobě Dozimetru](https://www.idnes.cz/zpravy/domaci/kauza-dozimetr-obzaloba-michal-redl-stan-korupce.A250910_071314_domaci_herp)
