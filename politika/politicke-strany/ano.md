@@ -30,3 +30,5 @@
 
 7. [Poslankyně ANO chtěla „zakleknout“ firmu exmanžela. Ať to hned vysvětlí, říká Babiš](https://www.idnes.cz/zpravy/domaci/margita-balastikova-poslankyne-ano-zneuziti-funkce-nahravky-andrej-babis.A250812_095053_domaci_misl)
 
+8. [Odposlechy zachytily Faltýnka při snaze ovlivnit mýtný tendr](https://www.novinky.cz/clanek/domaci-odposlechy-zachytily-faltynka-pri-snaze-ovlivnit-mytny-tendr-40538339?noredirect=1)
+
