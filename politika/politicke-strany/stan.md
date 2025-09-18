@@ -27,3 +27,5 @@
 5. [„Dva a půl milionu, nádhera, ne?“ O čem si tajně povídali obžalovaní z Dozimetru](https://www.idnes.cz/zpravy/domaci/stan-dozimetr-zaloba-kauza-korupce-michal-redl-pavel-kos-matej-augustin-hlubucek.A250910_191751_domaci_varg)
 
 6. [Redl neoficiálně finančně podporoval Starosty, stojí v obžalobě Dozimetru](https://www.idnes.cz/zpravy/domaci/kauza-dozimetr-obzaloba-michal-redl-stan-korupce.A250910_071314_domaci_herp)
+
+7. [Farský stáhl 1 milion korun z politického institutu STAN. Platit si navíc nechal bydlení i auto](https://medium.seznam.cz/clanek/politicky-insider-farsky-stahl-1-milion-korun-z-politickeho-institutu-stan-platit-si-navic-nechal-bydleni-i-auto-188728)
