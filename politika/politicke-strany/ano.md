@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/fbc1a11f-f2a3-4456-b71e-e962c7320e18)# ANO
+![image](https://github.com/user-attachments/assets/fbc1a11f-f2a3-4456-b71e-e962c7320e18)# ANO = Andrej Babiš
 
 1. [Zakázka za všechny peníze. Armáda koupila drony za 42 milionů, stojí přitom pár set tisíc](https://www.novinky.cz/clanek/domaci-zakazka-za-vsechny-penize-armada-koupila-drony-za-42-milionu-stoji-pritom-par-set-tisic-40478760)
 1. [Pardubická chobotnice](https://www.irozhlas.cz/zpravy-domov/kauza-ovlivnovani-zakazek-v-pardubicich-bobtna-kriminaliste-obvinili-dalsich_2407151637_vtk)
@@ -30,5 +30,7 @@
 
 7. [Poslankyně ANO chtěla „zakleknout“ firmu exmanžela. Ať to hned vysvětlí, říká Babiš](https://www.idnes.cz/zpravy/domaci/margita-balastikova-poslankyne-ano-zneuziti-funkce-nahravky-andrej-babis.A250812_095053_domaci_misl)
 
-8. [Odposlechy zachytily Faltýnka při snaze ovlivnit mýtný tendr](https://www.novinky.cz/clanek/domaci-odposlechy-zachytily-faltynka-pri-snaze-ovlivnit-mytny-tendr-40538339?noredirect=1)
+8. [Odposlechy zachytily Faltýnka při snaze ovlivnit mýtný tendr](https://www.novinky.cz/clanek/domaci-odposlechy-zachytily-faltynka-pri-snaze-ovlivnit-mytny-tendr-40538339)
+
+9. [„Víc masa do salámů? Jste se po.., ne?“ řekl Babiš podle tvůrce reklamy na Kostelecké uzeniny](https://www.novinky.cz/clanek/domaci-vic-masa-do-salamu-jste-se-po-ne-rekl-babis-podle-tvurce-reklamy-na-kostelecke-uzeniny-40539804)
 
