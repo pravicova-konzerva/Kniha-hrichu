@@ -29,3 +29,9 @@
 6. [Redl neoficiálně finančně podporoval Starosty, stojí v obžalobě Dozimetru](https://www.idnes.cz/zpravy/domaci/kauza-dozimetr-obzaloba-michal-redl-stan-korupce.A250910_071314_domaci_herp)
 
 7. [Farský stáhl 1 milion korun z politického institutu STAN. Platit si navíc nechal bydlení i auto](https://medium.seznam.cz/clanek/politicky-insider-farsky-stahl-1-milion-korun-z-politickeho-institutu-stan-platit-si-navic-nechal-bydleni-i-auto-188728)
+
+8. [Svědek o úplatcích v Dozimetru: TOP 09 a STAN šly napůl, Redl bral podíl od STAN](https://www.idnes.cz/zpravy/domaci/dozimetr-matej-augustin-michal-redl-top-0p-stan.A250922_182453_volby_pari)
+
+9. [Kauza Dozimetr: S Redlem jsme finančně podporovali TOP 09 a STAN, prohlásil u soudu Kos](https://www.novinky.cz/clanek/krimi-kauza-dozimetr-s-redlem-jsme-financne-podporovali-top-09-a-stan-prohlasil-u-soudu-kos-40540153)
+
+10. [Exkluzivně: jakou roli hrály špičky STAN a TOP 09 v korupční kauze Dozimetr](https://www.idnes.cz/zpravy/domaci/dozimetr-starostove-politika-kauza-gazdik-stan-pospisil.A250919_172710_domaci_krd)
