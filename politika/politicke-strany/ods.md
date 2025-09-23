@@ -25,3 +25,5 @@
 21. [Agrofert neměl čerpat ani národní dotace. Stamiliony stát zpět nechce](https://www.seznamzpravy.cz/clanek/domaci-kauzy-vymahat-narodni-dotace-po-firmach-babise-rozsudky-nam-nestaci-tvrdi-stat-283049) Za vlády ODS se nevyžaduje od Agrofertu vrácení peněz z dotací, na které neměl nárok.
 22. [Z ubytovny nemocnice jsou byty za 150 milionů. Vydělala politička ODS](https://www.seznamzpravy.cz/clanek/domaci-kauzy-z-ubytovny-nemocnice-jsou-byty-za-150-milionu-vydelala-politicka-ods-283697)
 23. [„ODS chce peníze ze špitálu - neofiko,“ zaznělo v odposleších v kauze IKEM](https://www.novinky.cz/clanek/domaci-ods-chce-penize-ze-spitalu-neofiko-zaznelo-v-odposlesich-v-kauze-ikem-40538559)
+24. [Lobbista a sponzor ODS zná trest za ovlivňování tendrů. Vězení nakonec unikl](https://zpravy.aktualne.cz/domaci/lobbista-a-sponzor-ods-zna-trest-za-ovlivnovani-tendru-vezen/r~122ac85e978611f09a9dac1f6b220ee8/)
+25. [Policie navrhla v Dozimetru obžalovat exposlance ODS. Podle ní uplácel](https://www.seznamzpravy.cz/clanek/domaci-kauzy-policie-navrhla-v-dozimetru-obzalovat-exposlance-ods-podle-ni-uplacel-286392)
