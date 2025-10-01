@@ -27,3 +27,4 @@
 23. [„ODS chce peníze ze špitálu - neofiko,“ zaznělo v odposleších v kauze IKEM](https://www.novinky.cz/clanek/domaci-ods-chce-penize-ze-spitalu-neofiko-zaznelo-v-odposlesich-v-kauze-ikem-40538559)
 24. [Lobbista a sponzor ODS zná trest za ovlivňování tendrů. Vězení nakonec unikl](https://zpravy.aktualne.cz/domaci/lobbista-a-sponzor-ods-zna-trest-za-ovlivnovani-tendru-vezen/r~122ac85e978611f09a9dac1f6b220ee8/)
 25. [Policie navrhla v Dozimetru obžalovat exposlance ODS. Podle ní uplácel](https://www.seznamzpravy.cz/clanek/domaci-kauzy-policie-navrhla-v-dozimetru-obzalovat-exposlance-ods-podle-ni-uplacel-286392)
+26. [„Nevěděl jsem, jestli krade Netuka, nebo ODS,“ řekl exředitel IKEM Stiborek](https://www.novinky.cz/clanek/domaci-nevedel-jsem-jestli-krade-netuka-nebo-ods-rekl-exreditel-ikem-stiborek-40541218)
